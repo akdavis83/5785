@@ -31,7 +31,7 @@ prayers and being anointed~both define and declare God's authority, gifts, calli
 
 5=maturity and unity, perfect synchronicity of birds in the heavens/(Shamayim) above and fish in the waters/(Mayim) below
 
-25th Hebrew word= Ohr(light). Light and seed are equivalent. Levites began to apprentice at 25 and then started official ministry at 31. The apprentice age was later changed to 21 due to an increased need for workers.
+25th Hebrew word= Ohr(light). Light and seed are equivalent. Levites began to apprentice at 25 and then started official ministry at 30. The apprentice age was later changed to 21 due to an increased need for workers.
 
 The negatives of 5= feet running swiftly to evil, walking towards darkness instead of away from it, trampling the holy with one's feet, ruled by the power of the Nephesh/flesh instead of the power of the Spirit.
 
