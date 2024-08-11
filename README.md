@@ -26,6 +26,7 @@ And the spirit of the LORD shall rest upon him, the spirit of wisdom and underst
 (Isa 11:2-3)
 
 5=grace, gospel, God's seed(light), filled, prepared, and empowered to go forth
+
 prayers and being anointed~both define and declare God's authority, gifts, callings, favor, direction, purpose, and will. They release a sweet scent, and both are a hedge of protection.
 
 5=maturity and unity, perfect synchronicity of birds in the heavens/(Shamayim) above and fish in the waters/(Mayim) below
