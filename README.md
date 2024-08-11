@@ -35,11 +35,16 @@ prayers and being anointed~both define and declare God's authority, gifts, calli
 
 The negatives of 5= feet running swiftly to evil, walking towards darkness instead of away from it, trampling the holy with one's feet, ruled by the power of the Nephesh/flesh instead of the power of the Spirit.
 
-Joshua leads the Israelites into the Promised Land @ 85 years old
+Feet trampling Christ:
 
-Caleb requests his promised territory @ 85
+(Hebrews 10:29) Of how much sorer punishment, suppose ye, shall he be thought worthy, who hath trodden under foot the Son of God, and hath counted the blood of the covenant, wherewith he was sanctified, an unholy thing, and hath done despite unto the Spirit of grace?
 
-Abraham was 85 years old when God established the 1st covenant with him.
+
+~Joshua leads the Israelites into the Promised Land @ 85 years old
+
+~Caleb requests his promised territory @ 85
+
+~Abraham was 85 years old when God established the 1st covenant with him.
 
 1 After these things the word of the LORD came unto Abram in a vision, saying, Fear not, Abram: I am thy shield, and thy exceeding great reward. 2 And Abram said, Lord GOD, what wilt thou give me, seeing I go childless, and the steward of my house is this Eliezer of Damascus? 3 And Abram said, Behold, to me thou hast given no seed: and, lo, one born in my house is mine heir. 4 And, behold, the word of the LORD came unto him, saying, This shall not be thine heir; but he that shall come forth out of thine own bowels shall be thine heir. (Gen 15:1-4)
 
