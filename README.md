@@ -20,7 +20,8 @@ The LORD your God hath multiplied you, and, behold, ye are this day as the stars
 
 5 smooth stones=5 times the provision for the victory
 
-Fifth Spirit of God=power and strength
+Fifth Spirit of God=power and strength.
+
 And the spirit of the LORD shall rest upon him, the spirit of wisdom and understanding, the spirit of counsel and might, the spirit of knowledge and of the fear of the LORD; 3 And shall make him of quick understanding in the fear of the LORD: and he shall not judge after the sight of his eyes, neither reprove after the hearing of his ears:
 (Isa 11:2-3)
 
