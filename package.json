@@ -1,0 +1,18 @@
+{
+  "name": "webgl-perlin2d-example",
+  "version": "1.0.0",
+  "description": "Example of 2D perlin noise generation using texture lookup.",
+  "main": "index.js",
+  "scripts": {
+    "start": "budo index.js:bundle.js --live",
+    "build": "browserify index.js -o bundle.js"
+  },
+  "author": "Rye Terrell",
+  "license": "Unlicense",
+  "dependencies": {
+    "browserify": "^13.1.0",
+    "budo": "^9.2.1",
+    "regl": "^1.2.1",
+    "webgl-perlin2d-example": "file:"
+  }
+}
